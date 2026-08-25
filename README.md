@@ -153,6 +153,6 @@ No emite diagnósticos médicos, no prescribe tratamientos ni sustituye el crite
 
 <div align="center">
 
-<sub>Elaborado por Buró de Servicios Empresariales -2023 -+593999597697</sub>
+<sub>Elaborado por Buró de Servicios Empresariales -2026 -+593999597697</sub>
 
 </div>
